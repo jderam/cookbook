@@ -18,7 +18,7 @@ Add chicken, sautee a bit more.
 Add tomatoes, mix everything up, pressure cook for 15 minutes.
 Take chicken out of the liquid and pull it apart with forks in a bowl.
 Blend the tomatoes/juices in a blender on soup setting until smooth. Don't fill blender more than 1/3 to 1/2 full, and cover top with a towel while blending to prevent splatter.
-Add the blnded sauce back to the chicken.
+Add the blended sauce back to the chicken.
 
 ### Source
 https://youtu.be/DqTsb9N3cqY  
