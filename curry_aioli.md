@@ -1,7 +1,7 @@
 # Curry Aioli
 
 ## Ingredients
-- 2 tbsp maynnaise
+- 2 tbsp mayonnaise
 - 1 crushed garlic clove
 - 1 tsp lemon juice
 - 1/2 tsp curry powder
