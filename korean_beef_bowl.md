@@ -1,17 +1,17 @@
 # Korean Beef Bowl
 
 ## Ingredients
-- 2 lbs ground beef or ground prime rib
-- chopped garlic
-- 1/4 cup soy sauce
+- 1 lb ground beef or ground prime rib
+- garlic/ginger paste
+- 3 tbsp soy sauce
 - splash rice wine vinegar
 - few drops sesame oil
 - crushed red pepper
-- fresh grated ginger or ground ginger
-- brown sugar (optional)
-- 2 lbs shredded cabbage/carrots (cole slaw mix)
+- 2 tbsp brown sugar (optional)
+- 14-oz bag of ALDI cole slaw mix (shredded cabbage and carrots)
+- kimchi (optional)
 
 ## Instructions
-1. brown and drain the ground beef
-2. sautee the cabbage/carrots until soft
-3. combine everything and simmer, allowing flavors to mix
+1. brown the ground beef and drain off excess fat
+2. add everything else
+3. sautee while mixing until the cabbage/carrots are soft
